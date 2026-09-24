@@ -1,0 +1,1 @@
+# Automatizovany-Sklad
